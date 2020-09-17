@@ -1,6 +1,6 @@
 # Come, curious caller 👋
 
-# Ciao, chiamante caro 👋
+# Ciao, caro chiamante 👋
 
 Look lovingly at my lustrous, luminous listings.
 
